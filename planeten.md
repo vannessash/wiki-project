@@ -10,3 +10,5 @@ In onze zonnestelsel zijn er 8 planeten die in een baan rond de zon draaien. Ze 
     7. Uranus
     8. Neptunus
 De eerste 4 planeten worden binnenplaneten genoemd, omdat ze het dichtst bij de zon staan en rotsachtige planeten zijn. De andere 4 planeten worden buitenplaneten genoemd.
+
+Jupiter is zo groot dat alle andere planeten erin zouden passen.
