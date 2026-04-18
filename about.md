@@ -1,0 +1,5 @@
+Over mij
+
+Mijn naam is Vannessa en ik ben een student aan de AP Hogeschool. Sinds mijn kindertijd heb ik een grote droom gehad om astronaut te worden en het heelal te verkennen. Hoewel ik minder sterk ben in wiskunde, heeft dat mijn interesse in de ruimte nooit tegengehouden. In mijn vrije tijd lees ik graag boeken over sterrenkunde en kijk ik vaak naar de sterren. 
+
+Wat ik fascinerend vind, is dat wanneer ik naar een ster kijk, ik eigenlijk licht zie dat heel lang onderweg is geweest om ons te bereiken. Sterren staan namelijk op enorme afstanden van ons, gemeten in lichtjaren. Denk bijvoorbeeld aan Sirius, het helderste puntje aan de nachtelijke hemel. Hoewel het er klein uitziet, komt dat licht van een ster die ongeveer 8,6 lichtjaar van ons verwijderd is. Het idee dat we naar het verleden van het heelal kijken wanneer we naar de sterren staren, vind ik bijzonder indrukwekkend.
