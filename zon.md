@@ -1,0 +1,3 @@
+De Zon
+
+De Zon is een ster en staat centraal in onze zonnestelsel. De zwaartekracht van de Zon zorgt ervoor dat alle objecten rond de Zon blijven draaien, vandaar de naam 'zonnestelsel'. De zon is essentieel voor ons omdat het licht en warmte biedt. Als de Zon verdwijnt zou de temperatuur heel snel zakken en zou er geen leven op aarde zijn, omdat alles bevriest. Na een aantal minuten rond de baan draaien zullen we uiteindelijk wegslingeren en zweven we rond in de ruimte tot we tegen een andere ruimteobject botsen.
